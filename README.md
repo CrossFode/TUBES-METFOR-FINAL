@@ -5,3 +5,6 @@
 -WILDAN HADI FERNANDO (1302223012)
 
 LINK DOCS : https://docs.google.com/document/d/1EU9pkQiNY1maGPCItxjIkCKnSf80oKrYUF1tr1Ch0nA/edit?usp=sharing
+
+LINK VIDEO : 
+https://drive.google.com/file/d/17DTLIksb0LhNVN13Gb87uh377UnSWy-m/view?usp=drive_link
